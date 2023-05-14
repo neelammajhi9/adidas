@@ -1,9 +1,8 @@
 there was leptop
 she is bautiful
-hina was lucky
-she was ill
+hina was
 hdhfsfjkd
 dffkhk
 dhsdjj
-dbjsjcsjc
+
 
